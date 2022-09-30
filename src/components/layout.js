@@ -14,14 +14,14 @@ const Layout = ({ location, title, children }) => {
   }
 
   return (
-      <div className="global-wrapper">
-        <header className="global-header">
-          <Link className="header-link-home" to="/">
-            {title}
-          </Link>
-        </header>
-        <main>{children}</main>
-      </div>
+    <div className="global-wrapper">
+      <header className="global-header">
+        <Link className="header-link-home" to="/">
+          {title}
+        </Link>
+      </header>
+      <main>{children}</main>
+    </div>
   )
 }
 
