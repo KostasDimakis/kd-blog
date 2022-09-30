@@ -13,19 +13,19 @@ _TD;DR;_
 * I'll be blogging about weekly goals.
 * I'll be posting twice a week.
 
-### What's wrong?
+## What's wrong?
 
 Well, I'll be honest. My life is not how I imagined it would be in my age. I'm **31**yo. I've literally haven't done a single thing in my life that I am proud of. Which is funny cause that's how I feel. If you ask my friends how they see me, they probably see a proper professional, working at a decent company, earning a decent salary and seemingly having my life together. But that's not the case. I have so many things I want to accomplish that I honestly can no longer sit back and just wait for the perfect moment. Enough is enough.
 
-### How will starting a blog help?
+## How will starting a blog help?
 
 Writing in public. I think this trend has always been around but I think it really became popular by [Pieter Levels (@levelsio)](https://twitter.com/levelsio). I think the idea of doing things in public, probably helps cause you feel like you have a responisiblity to follow through. We'll see if that'll work for me or not. The overall thing I'm hoping to achieve with starting a blog is a shift of all of my mental efforts towards accompishing something that I'll be proud of. And hopefully have a snowball effect and I'll keep wanting more of it.
 
-### What am I going to be writing about?
+## What am I going to be writing about?
 
 Since I'm planning to use this blog as a means to keep me accountable then I think starting with posts about weekly goals is probably a good idea. Thus, the format will be simple. Reporting [](https://)on last week's goals, and planning for the next. Maybe an odd, long blog post about things that I contemplate in life? I don't want to be writing essays every time. I'm going to try and keep things simple and concise. Reporting on the previous week's goals and what I learned and planning for the week ahead.
 
-### Writing frequency
+## Writing frequency
 
 I want to start out by keeping it small. As I've mentioned, writing blog posts is to keep me accountable towards my goals.
 
