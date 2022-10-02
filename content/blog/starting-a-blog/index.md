@@ -35,4 +35,5 @@ How about writing weekly? Nope. Writing weekly is too late. If I'm planning for 
 
 So what then? Let's approach this in an expiremental way. Let's start with 1 mid-week check-in on Wednesday and a proper report on Sunday where I'll also be stating my goals for the week.
 
+
 Well, that's it for now. Hopefully my next post is going to be Sunday where I'll be setting some goals for the week ahead. Until then stay awesome 😎. Peace ✌🏻.
