@@ -11,7 +11,6 @@ _TD;DR;_
 * Finally, first blog post; let's hope I'll keep going.
 * Relaxing Sunday.
 * I'll be blogging about the past week.
-* I'm a foodie.
 * Watched The Menu.
 
 ## First blog post 🎉
@@ -28,15 +27,7 @@ When I initially wanted to start a blog, I wanted to make it like a public TODO 
 
 So now I want to take a new approach. I'll write a post every Sunday evening about the past week. It'll make me write down my thoughts, review the week, and how I want to proceed. It'll also make me better at writing. That's very important as well.
 
-## I'm a foodie 😋
-
-Let me explain why I'm a foodie. I always enjoyed good food but never had a fine dining experience. In August, while in Athens, I visited a 1 star Michelin restaurant. Simply put, it was the best meal/experience I've had at a restaurant. The food was delightful. And it wasn't just a few courses back to back. It indeed was a story. Every meal was delicious and was preparing you for the next one. The wine pairing took the whole experience to the next level. A truly unforgettable experience. The restaurant is [CTC](https://www.instagram.com/ctcresto) for anyone interested 😉. Since then, I've been looking for good quality food, from famed restaurants to city centers to remote villages offering outstanding locally sourced cuisine.
-
-A side note. A lot of people are going to think that fine dining is really _a lot of money for no reason_. _An unnecessary expense_. _And the portions are tiny_!
-
-The answer to that is straightforward. It's not just a meal. You're getting an experience. A very memorable experience. It would be best to compare it to a good seat at a west-end theatre or musical. Or even a weekend trip. Cause that's what it is. An **experience**. And trust me, by the time I was done at CTC, I was full. The right amount of full. Feeling great, but also not wanting another bite even if you paid me.
-
 ## The Menu
 
 BRB. *Watches the movie*.
-And I'm back! As I expected, I will have to make reservations at a nice restaurant in Athens during the Christmas period 😂.
+And I'm back! HOLY SHIT! What a crazy movie this was. So many questions?! Definitely worth the watch. Terrific acting. Lot's of things to unpack. Does it make you want to experience fine dining? Definitely 😋!
