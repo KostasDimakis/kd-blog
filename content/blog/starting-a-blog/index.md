@@ -17,7 +17,7 @@ _TD;DR;_
 
 Hello there. This is my first blog post, so welcome! Been wanted to do this for a while. Kept postponing it, wrote drafts that I never published, etc. There's a high chance that you've been there as well. At least this one is published. Let's see how long this is going to last 😅.
 
-## Relaxing Sunday.
+## Relaxing Sunday
 
 Sunday is always a chill day 🧘🏻. Woke up and did a bit of cardio. I did shadow boxing 🥊 after a long, long time. I'm definitely sticking to that for a while. I miss it like crazy. Then breakfast and a few house chores and out for the day. Grabbed some coffee and walked around my neighborhood for a bit. I'm sitting at Westfield writing this blog post and waiting to watch [The Menu](https://www.imdb.com/title/tt9764362/). I am a foodie, so I'm sure I'll like it 🍲. I'll let you know what I think below 👇🏻.
 
