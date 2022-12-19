@@ -27,4 +27,4 @@ Last week I managed to get in 6 days of 1-hour morning brisk walks. My goal is t
 
 ## 🌞 Summery mid-December weekend
 
-The weather this weekend was just ridiculous. Contrary to popular belief among foreigners, winter in Greece is unlike summer. It’s definitely not. However, there are exceptions. This weekend’s weather was spectacular. I enjoyed a great time at a taverna by the sea on Saturday afternoon. I also enjoyed a fine-dining experience at the center of Athens with a view of Acropolis on Sunday night. So far, despite 0 downtime, I’m enjoying my time in Greece.
+The weather this weekend was just ridiculous. Contrary to popular belief among foreigners, winter in Greece is unlike summer. It can get quite cold. However, there are exceptions. This weekend’s weather was spectacular. I enjoyed a great time at a taverna by the sea on Saturday afternoon. I also enjoyed a fine-dining experience at the center of Athens with a view of Acropolis on Sunday night. So far, despite 0 downtime, I’m enjoying my time in Greece.
