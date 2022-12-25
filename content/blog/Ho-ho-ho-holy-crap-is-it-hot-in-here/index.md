@@ -34,4 +34,4 @@ The funniest thing happened. My mother-in-law decided that she wanted to break p
 
 ## Christmas Eve & Christmas day 🎅🏻
 
-I had a great Christmas Eve. I went to this little place with live music and decent food for 20€/pp. I'm back at my folks' home today and will stay for a few days. This means the usual: [Tech support](https://twitter.com/MKBHD/status/1606438997642846209), playing some chess with my dad ♟️ and trying and some relatives and friends. Can't wait 😅!
+I had a great Christmas Eve. I went to this little place with live music and decent food for 20€/pp. I'm back at my folks' home today and will stay for a few days. This means the usual: [Tech support](https://twitter.com/MKBHD/status/1606438997642846209), playing some chess with my dad ♟️, and trying to visit as many relatives and friends as I can. Can't wait 😅!
