@@ -6,7 +6,7 @@ description: The summer continues well into Christmas.
 ![Beach, sea, palm trees](cardio.jpg)
 <span class="caption">Morning cardio by the beach with a t-shirt</span>
 
-_TD;DR;_
+_TL;DR;_
 
 * Warm, sunny days continue.
 * Web3 studying is carrying on at an average pace, considering it's the holidays.

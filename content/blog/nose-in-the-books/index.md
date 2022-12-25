@@ -6,7 +6,7 @@ description: A chill week. Plenty of studying. Workouts are going OK.
 ![Gorgon city at Fabric](gorgon.jpg)
 <span class="caption">Gorgon City at Fabric</span>
 
-_TD;DR;_
+_TL;DR;_
 
 * Been catching up on web3 tech. It's... interesting.
 * Started working out with weights again.

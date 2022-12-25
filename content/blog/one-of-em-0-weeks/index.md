@@ -6,7 +6,7 @@ description: Not much happened this week. I'm back in Greece.
 ![My christmas tree](tree.jpg)
 <span class="caption">The Dimakis family Christmas tree</span>
 
-_TD;DR;_
+_TL;DR;_
 
 * Not many exciting things happened
 * Finally, in Greece for Christmas

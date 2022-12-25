@@ -6,7 +6,7 @@ description: First blog post. EZ.
 ![Westfield at White City](westfield.jpg)
 <span class="caption">Westfield closing while I'm waiting to watch a movie</span>
 
-_TD;DR;_
+_TL;DR;_
 
 * Finally, first blog post; let's hope I'll keep going.
 * Relaxing Sunday.

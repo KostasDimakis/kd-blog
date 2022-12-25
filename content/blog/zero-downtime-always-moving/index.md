@@ -6,7 +6,7 @@ description: Super busy. Good progress with web3. Workouts daily 💪.
 ![Greek taverna by the sea](taverna.jpg)
 <span class="caption">Saturday afternoon at a taverna by the beach</span>
 
-_TD;DR;_
+_TL;DR;_
 
 * Lots of driving around. Athens, Corinth, Chaklis.
 * Web3 studying going on strong
