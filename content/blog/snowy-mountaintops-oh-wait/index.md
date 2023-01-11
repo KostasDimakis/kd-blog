@@ -8,7 +8,6 @@ description: A week split into 4 locations during a summery post-New year.
 
 _TL;DR;_
 
-* I won the hidden golden coin in the new year cake.
 * Chilling in Arachova.
 * Avatar 2.
 * Μπουζούκια.
@@ -17,7 +16,7 @@ _TL;DR;_
 
 ## Back in Chalkis and winning the "φλουρί"
 
-The week starts in Chalkis. Cups of coffee and car rides around the beach. We cut the New Year's cake, "Βασιλόπιτα" in Greek, and I won the "φλουρί". It's supposed to be a good luck charm for the whole year. I don't believe in that, but I'll still take the help 😅. After that, Crash Bandicoot (man, I'm a complete noob at landing correctly 😅), some light book reading, and before I know it, I'm packing my bags to leave for Arachova the same day!
+The week starts in Chalkis. Cups of coffee and car rides around the beach. After that, Crash Bandicoot (man, I'm a complete noob at landing correctly 😅), some light book reading, and the next thing I know, I'm packing my bags to leave for Arachova the next day.
 
 ## Chilling in Arachova
 
@@ -29,7 +28,7 @@ Back in Chalkis from Arachova for a couple of days. I watched Avatar 2. Great mo
 
 ## Μπουζούκια 🎺
 
-You know, when I was little, I didn't really have an appreciation for what we Greeks call "μπουζούκια". It's essentially live well-known Greek singers, kinda like a concert but also quite different. To understand, you need to [watch a video](https://youtu.be/Xasr_Rfzq0w). The only thing you'll probably not realize from the video is that the prominent singers come out at 1AM, and the program stops at ~5AM. So you can kiss tomorrow's day goodbye. Still, it's great fun, and I'm glad I see it that way now.
+You know, when I was little, I didn't really have an appreciation for what we Greeks call "μπουζούκια". It's essentially live well-known Greek singers, kinda like a concert but also quite different. To understand, you must [watch a video](https://youtu.be/Xasr_Rfzq0w). The only thing you'll probably not realize from the video is that the prominent singers come out at 1AM, and the program stops at ~5AM. So you can kiss tomorrow's day goodbye. Still, it's great fun, and I'm glad I see it that way now.
 
 ## No gym, no studying
 
@@ -37,4 +36,4 @@ Given everything that I've described so far, you'll appreciate why there was min
 
 ## Back in London
 
-Aaaand... that's a wrap on the holidays. Man, that was a long break. Next year I might switch it up a bit. I've got a few things on my mind. The flight was good, with no delays, my home was clean, and my bed was already made for me. Time to get back to a work 👨🏻‍💻, gym 🏋🏻, study 📖, sleep 💤 routine.
+Aaaand... that's a wrap on the holidays. Man, that was a long break. Next year I might switch it up. I've got a few things on my mind. The flight was good, with no delays, my home was clean, and my bed was already made for me. Time to get back to a work 👨🏻‍💻, gym 🏋🏻, study 📖, sleep 💤 routine.

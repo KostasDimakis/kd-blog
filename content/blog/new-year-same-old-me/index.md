@@ -11,7 +11,7 @@ _TL;DR;_
 * I Spent the week visiting my parents in my hometown.
 * Skipped studying.
 * Gym.
-* New year celebrations.
+* New year's eve/day celebrations.
 * New year goals?
 
 Happy new year, everyone 🎇.
@@ -28,10 +28,18 @@ This week has been stagnant, studying-wise. I had a blast back home, so I'm not 
 
 I kept up the cardio and gym sessions. In fact, I joined a local gym 5 minutes away from my house. It was really well-geared. I worked that squat machine on leg day 🦵🏻.
 
-## New year celebrations
+## New year's eve celebrations
 
-On New Year's Eve, I was back in Chalkida. It was the typical New Years' Eve night. Friends, relatives, and plenty of delicious food and drinks.
+On New Year's Eve, I was back in Chalkida. It was the typical New Year's Eve night. Friends, relatives, and plenty of delicious food and drinks.
+
+There's a funny little tradition that I was introduced to. After midnight, we passed around some scratchcards to test our luck for the new year. I didn't win a dime! Oh boy... 🎲📉.
+
+## New year's day celebrations
+
+On new year's day, I went out for brunch and coffee with my family. It's a tradition with Greeks. We cut the New Year's cake, "Βασιλόπιτα" in Greek, and I won the "φλουρί". It's supposed to be a good luck charm for the whole year. I don't believe in that, but if I did believe in it, I'd say it balances out with the scratchcard 🍀😮‍💨.
+
+We also exchanged presents. I got some boxers, socks (classic family presents), a book, and an accompanying audiobook. A little secret is that I already knew the book's title, so I purchased the audiobook and started listening ahead of time 🤫.
 
 ## My new year goals
 
-I'm not a believer in new year's resolutions. I've never had any success with them; many people don't. Instead, I'm going to say that I'd like to stay the same this year. I like who I am and how I'm approaching my life now, and I'll keep going!
+I'm not a believer in new year's resolutions. I've never had any success with them; many people don't. Instead, I'd like to stay the same this year. I like who I am and how I'm approaching my life now, and I'll keep going!
