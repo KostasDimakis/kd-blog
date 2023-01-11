@@ -8,9 +8,9 @@ description: Not much happened this week. I'm back in Greece.
 
 _TL;DR;_
 
-* Not many exciting things happened
-* Finally, in Greece for Christmas
-* Christmas trees
+* Not many exciting things happened.
+* Finally, in Greece for Christmas.
+* Christmas trees.
 
 ## Busy week full of chores, 0 productivity
 
