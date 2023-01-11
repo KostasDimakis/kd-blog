@@ -14,7 +14,7 @@ _TL;DR;_
 * No Gym, no studying.
 * Back in London.
 
-## Back in Chalkis and winning the "φλουρί"
+## Back in Chalkis and ready to leave already
 
 The week starts in Chalkis. Cups of coffee and car rides around the beach. After that, Crash Bandicoot (man, I'm a complete noob at landing correctly 😅), some light book reading, and the next thing I know, I'm packing my bags to leave for Arachova the next day.
 
