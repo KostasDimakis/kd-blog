@@ -28,6 +28,6 @@ I took advantage of a discount from work and got the chance to watch Harry Potte
 
 Saturday got my workouts in and then joined the boys at a pub near the Thames. We walked around London. It was so damn hot, upwards of 31 degrees. Shorts were a must!
 
-Sunday was race weekend 🤥. No, it wasn't! But I visited F1 Arcade, and it was awesome. The semis there are the real thing. Proposing and everything... I initially tried the "noob" mode, but it was too forgiving and meddling. Ultimately, I played "Elite", which offered no help. Still, it was by far the most enjoyable and realistic. So good! Then straight to Canary Wharf to sit on the grass and watch the Roland Garros final.
+Sunday was race weekend 🤥. No, it wasn't! But I visited F1 Arcade, and it was awesome. The sims there are the real thing. Porpoising and everything... I initially tried the "noob" mode, but it was too forgiving and meddling. Ultimately, I played "Elite", which offered no help. Still, it was by far the most enjoyable and realistic. So good! Then straight to Canary Wharf to sit on the grass and watch the Roland Garros final.
 
 When the weather is good in London, it's a totally different experience 🇬🇧☀️!
